@@ -1,1 +1,1 @@
-## This is my personal blog for English writing trainning
+## This is my personal blog for English writing training
